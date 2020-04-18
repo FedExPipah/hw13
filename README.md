@@ -1,4 +1,4 @@
-The final version will be in Jane's bithub
+The final version will be in Jane's github
 
 but she might be upload late late late so 
 
